@@ -32,4 +32,4 @@
 
   <br>
   <br>
-Obrigada por visitar meu perfil! 🚀
+Obrigado por visitar meu perfil! 🚀
